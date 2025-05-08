@@ -29,4 +29,4 @@
   👉 <a href="https://t.me/+7-M8g010H805YWNh" target="_blank">https://t.me/+7-M8g010H805YWNh</a>
 </p>
 
-<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Palacebet avantajlarını kaçırmayın! 🔥</p>
+<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Palacebet avantajlarını kaçırmayın!. 🔥</p>
